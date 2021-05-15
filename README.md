@@ -1,0 +1,1 @@
+# script_vk_Ex_8
